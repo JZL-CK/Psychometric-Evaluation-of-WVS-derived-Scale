@@ -1,0 +1,1 @@
+# Psychometric-Evaluation-of-WVS-derived-Scale
